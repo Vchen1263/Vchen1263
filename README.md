@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Vicky Chen
+- 👀 I’m interested in 3D designing, 3D printers, TINKERING! Oh reverse engineering is fun! 
+- 🌱 I’m currently learning many more Cad software, Machineary, 3D printer & Slicing
+- 💞️ I’m looking to collaborate on anything? I'll try my best
+- 📫 You can check out the website for my contact
+- 😄 Pronouns:She/Her
+- ⚡ Fun fact: I LOVE MY DOG (SUPER FLUFFY POM)
